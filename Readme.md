@@ -4,3 +4,8 @@ Ricardo Cuéllar Sánchez
 Claudia Andrea Huallpayunca Huallpa
 Luz Mary Orozco G.
 Juliana Paola Forero Larrotta
+
+# **Claudia Andrea Huallpayunca Huallpa**
+## Perú
+
+Perú :grinning:
